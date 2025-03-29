@@ -10,4 +10,4 @@
 
 ## Просто картинка:
 
-![](Aspose.Words.a3189bbc-4d5d-42a8-889c-67dd8f3e7f47.001.png)
+![](https://i.pinimg.com/736x/90/07/84/9007846f417929204a1feff6a91d60a5.jpg)
